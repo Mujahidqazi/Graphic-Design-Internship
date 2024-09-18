@@ -1,2 +1,2 @@
 # Graphic-Design-Internship
-Internship Of Graphic Design at Brainwave Matrix Solutions
+Internship Of Graphic Design at Brainwave Matrix Solutions 
